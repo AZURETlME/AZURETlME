@@ -1,4 +1,4 @@
-<img width="310" src="https://lastfm.dedomil.workers.dev/fluorosulfonic?dark">
+[<img width="310" src="https://lastfm.dedomil.workers.dev/fluorosulfonic?dark">](https://last.fm/user/fluorosulfonic)
 <details> 
   <summary>⌒⌒ ㅤㅤmy ㅤrentry ㅤlinks ㅤ... ㅤㅤ𐂯</summary>
   
